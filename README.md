@@ -1,2 +1,1 @@
-# shruthi
-this is my first project
+suhani is good girl
